@@ -6,7 +6,7 @@ Instagram-@WebDesighns.HTML
 
 YouTube-@TheDominator
 
-Email-@WebDesighns.HTML
+Email-@WebDesigns.HTML
 
 I am available all the time so don't be afraid to ask me any questions. Thank you 🙏 
 
